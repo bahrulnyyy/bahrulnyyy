@@ -1,6 +1,11 @@
+HII GUYS
+
+This is MY WIFE
 ![Logo](https://i.pinimg.com/1200x/80/15/d9/8015d98c5f5939a7567eab758f8d6e41.jpg)
 
-Hi Guys
+PIBI CUBI😍
+
+
 
 <!--
 **bahrulnyyy/bahrulnyyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
